@@ -1,6 +1,6 @@
                                                Resume Sample
 
-Anton Gdkv  
+Anton Gudkov  
 Kruka street  22/33     
 Republic of Belarus
 
