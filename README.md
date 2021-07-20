@@ -1,3 +1,3 @@
 # rsschool-cv
- https://gdkvntn.github.io/rsschool-cv/cv
+ https://gdkvntn.github.io/rsschool-cv/
  
